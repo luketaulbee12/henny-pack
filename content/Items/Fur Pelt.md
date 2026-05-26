@@ -1,0 +1,1 @@
+Chance to drop from any animal with a pelt

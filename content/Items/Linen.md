@@ -1,0 +1,1 @@
+Crafted using wool and plant fibers and a stick

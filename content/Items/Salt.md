@@ -1,0 +1,1 @@
+Can be obtained by boiling salt water on a campfire
